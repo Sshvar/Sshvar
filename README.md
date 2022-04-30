@@ -5,5 +5,5 @@ Me llamo Sayker, puedes buscar en mi Canal de Youtube y ver mi Tutoriales: https
 
 
 
-[![Super-Mario.gif](https://i.postimg.cc/wjQk1JnS/Super-Mario.gif)](https://postimg.cc/QFV7PB8b)
+[![Mario-Gameplay.gif](https://i.postimg.cc/gjwWJGJT/Mario-Gameplay.gif)](https://postimg.cc/dZKXNPG2)
 
