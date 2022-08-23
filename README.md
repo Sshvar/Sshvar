@@ -27,9 +27,14 @@ EEstas Paginas Pagan Hasta 5$ Por Registrarte Entra ya Es gratis Gana Criptomone
 <a href="https://mikron.biz/?ref=sayker70"> 
 <img src="https://mikron.biz/images/promo/MI-728.gif"/> 
 </a>
+.
+.
+.
 
 
 
 
 Otra que esta Pagando si Paga 5$ en Criptomoneda Registrate.......
 Link====  https://windmine.cc/ref/sayker70
+.
+https://gravis.cc/ref/sayker70
