@@ -17,8 +17,13 @@ https://kubehash.com/Welcome/Partner/139337
 
 
 
-
-<a href="https://kubehash.com/Welcome/Partner/139337" target="_blank"  title="KubeHash.com - Cloud mining cryptocurrency"><img src="https://kubehash.com/aff/200.gif" alt="KubeHash.com - Cloud mining cryptocurrency"></a>
-
-
 <a href="https://kubehash.com/Welcome/Partner/139337" target="_blank"  title="KubeHash.com - Cloud mining cryptocurrency"><img src="https://kubehash.com/aff/728.gif" alt="KubeHash.com - Cloud mining cryptocurrency"></a>
+
+
+
+EEstas Paginas Pagan Hasta 5$ Por Registrarte Entra ya Es gratis Gana Criptomoneda.
+
+
+<a href="https://mikron.biz/?ref=sayker70"> 
+<img src="https://mikron.biz/images/promo/MI-728.gif"/> 
+</a>
