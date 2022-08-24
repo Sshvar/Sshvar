@@ -46,12 +46,16 @@ Link====  https://windmine.cc/ref/sayker70
 
 
 
-
-.
-https://gravis.cc/ref/sayker70
+<a href="https://eravis.cc/ref/sayker70"><img src="https://eravis.cc/assets/img/E-728.gif"></a>
 
 
 
 
 
 https://eravis.cc/ref/sayker70
+
+
+
+
+.
+https://gravis.cc/ref/sayker70
