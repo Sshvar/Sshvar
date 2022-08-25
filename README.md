@@ -50,6 +50,12 @@ Link====  https://windmine.cc/ref/sayker70
 
 
 
+ <a href="https://vurmining.com/?ref=hOQe4k3rk8Nd">
+ <img src="https://vurmining.com/images/468x60.gif"></a>
+
+
+
+
 
 
 https://eravis.cc/ref/sayker70
