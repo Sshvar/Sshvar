@@ -7,8 +7,8 @@ Me llamo Sayker, puedes buscar en mi Canal de Youtube y ver mi Tutoriales: https
 
 [![Mario-Gameplay.gif](https://i.postimg.cc/ydPPLFsB/Mario-Gameplay.gif)](https://postimg.cc/mzPCD1P6)
 
+Gana
 
-https://extremetechprd.wpengine.com/wp-content/uploads/2014/06/norse-china-usa-hacking-smaller.gif
 
 Gana Criptomonedas, Hasta 5$ por solo Registrarte.
 
