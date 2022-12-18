@@ -8,7 +8,7 @@ Me llamo Sayker, puedes buscar en mi Canal de Youtube y ver mi Tutoriales: https
 [![Mario-Gameplay.gif](https://i.postimg.cc/ydPPLFsB/Mario-Gameplay.gif)](https://postimg.cc/mzPCD1P6)
 
 
-https://i.postimg.cc/7Yjk7H1n/Buckethead-Zombie.gif
+[![Buckethead-Zombie.gif](https://i.postimg.cc/7Yjk7H1n/Buckethead-Zombie.gif)](https://postimg.cc/4mvqRTSY)
 	.
 
 
