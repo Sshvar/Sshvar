@@ -7,7 +7,7 @@ Me llamo Sayker, puedes buscar en mi Canal de Youtube y ver mi Tutoriales: https
 
 [![Mario-Gameplay.gif](https://i.postimg.cc/ydPPLFsB/Mario-Gameplay.gif)](https://postimg.cc/mzPCD1P6)
 
-Gana
+	https://github.com/handsomestone/Zombie-Defense-Ga…/blob/master/zombie/BucketheadZombie.gif?raw=true
 
 
 Gana Criptomonedas, Hasta 5$ por solo Registrarte.
