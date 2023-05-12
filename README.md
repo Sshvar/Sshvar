@@ -1,5 +1,4 @@
-[![RPA-1.gif](https://i.postimg.cc/13KHgJZX/RPA-1.gif)](https://postimg.cc/qNznScqH) [![Inteligencia-artificial.gif](https://i.postimg.cc/433DLKff/Inteligencia-artificial.gif)](https://postimg.cc/v4p2DZxk)
-
+[![Karspersky-Map-38514127-43ff-4f47-8e55-d6a1ed9a2bc0.webp](https://i.postimg.cc/bYxcCfxB/Karspersky-Map-38514127-43ff-4f47-8e55-d6a1ed9a2bc0.webp)](https://postimg.cc/xq1487Fv)
 
 
 
