@@ -11,6 +11,7 @@ Me llamo Sayker, puedes buscar en mi Canal de Youtube y ver mi Tutoriales: https
 [![SnowPea.gif](https://i.postimg.cc/L5dW55FJ/SnowPea.gif)](https://postimg.cc/LYTD0HXS) [![Buckethead-Zombie.gif](https://i.postimg.cc/7Yjk7H1n/Buckethead-Zombie.gif)](https://postimg.cc/4mvqRTSY) [![Conehead-Zombie-Attack.gif](https://i.postimg.cc/gksMFNjX/Conehead-Zombie-Attack.gif)](https://postimg.cc/RN31w1c4)
 
 
+[![download.jpg](https://i.postimg.cc/VLyCBnf8/download.jpg)](https://postimg.cc/XX8qnZBH)
 	
 
 
